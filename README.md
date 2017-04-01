@@ -2,4 +2,4 @@
 
 Hi.
 
-It's no funny!
+It's not funny!
